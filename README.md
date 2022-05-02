@@ -1,0 +1,1 @@
+# Efetividade-do-multiparasitismo-e-estrat-gias-de-libera-o-de-parasitoides-para-programas-de-control
